@@ -1,4 +1,4 @@
-## **Volha Soika**
+## Volha Soika
 
 ### Contact Info
 1. Skype: olya.soika
